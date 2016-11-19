@@ -1,2 +1,2 @@
-# equal1ty
+# EQUAL1TY
 equal1ty.com
